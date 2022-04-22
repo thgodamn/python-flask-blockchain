@@ -1,0 +1,1 @@
+Исп. статья: https://python-scripts.com/blockchain
